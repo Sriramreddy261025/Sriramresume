@@ -1,1 +1,2 @@
-[SriramReddy Miriyala Resume.pdf](https://github.com/user-attachments/files/34920905/SriramReddy.Miriyala.Resume.pdf)
+[Sriram_Reddy_Resume.pdf](https://github.com/user-attachments/files/34920963/Sriram_Reddy_Resume.pdf)
+
